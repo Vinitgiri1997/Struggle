@@ -1,1 +1,2 @@
 # Struggle
+< do hard work>
