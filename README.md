@@ -4,3 +4,4 @@
 <do not stop until you get success>
 <do not think about others>
  <do not let them down youself>
+<be positive for your target>
